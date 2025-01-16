@@ -3,3 +3,5 @@
 - 🌱 I’m crypto trader
   
 OsziMisi/OsziMisi is a ✨ special ✨ 
+
+https://www.colocationamerica.com/ip-calculator
